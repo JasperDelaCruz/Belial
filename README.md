@@ -1,2 +1,0 @@
-# Belial
-MABUHAY ANG KAMPON
